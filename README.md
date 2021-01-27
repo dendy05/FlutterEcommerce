@@ -4,7 +4,6 @@
 
 ![WhatsApp Image 2021-01-27 at 20 35 44 (1)](https://user-images.githubusercontent.com/72974707/105999307-1b2ff280-60e0-11eb-90bf-8a7c5d6cbce9.jpeg)
 
-![WhatsApp Image 2021-01-27 at 20 35 44 (2)](https://user-images.githubusercontent.com/72974707/105999343-24b95a80-60e0-11eb-8161-7d8f44202f9c.jpeg)
 
 
 
